@@ -1,0 +1,10 @@
+- Hi, I’m Barbarossa
+- I’m interested in / Cyber Security
+- I’m currently learning / I'm trying to learn "how to learn." + (Offensive security) *Begginner
+- I’m looking to collaborate on / I am a lone wolf.
+- How to reach me / Why you want to reach me?
+-
+-
+-
+-
+-
